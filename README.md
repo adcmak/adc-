@@ -6,7 +6,7 @@ ADC影院- 最新地址发布页
 
 最新网址2：https://adcbsw.com/
 
-海外永久网址：：https://0adc.com/
+海外永久网址:https://0adc.com/
 
 请注意，永久地址一定要加https
 
